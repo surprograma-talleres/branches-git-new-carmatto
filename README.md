@@ -1,35 +1,38 @@
-### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+### [De Música Ligera](https://youtu.be/T_FkEw27XJ0) - Soda Stereo
 
-Lapacho
-Solito en el monte
-Donde el día esconde
-Lumbre de la tierra
-Ceniza de sol.
+Ella durmió
+Al calor de las masas
+Y yo desperté
+Queriendo soñarla
 
-Lapacho
-También en mi alma
-La vida
-Sembró su color.
-Un árbol
-Borracho de sueños
-Con ramas de viento
-Crecido en el monte
-De mi corazón.
+Algún tiempo atrás
+Pensé en escribirle
+Que nunca sorteé
+Las trampas del amor
 
-Pájaro de amor
-Fruta de pasión
-Una lluvia gris
-Se llevó de mí
-El urutaú
-En el tacuaral
-Canta su dolor
-Sin fin.
+De aquel amor
+De música ligera
+Nada nos libra
+Nada más queda
 
-Lapacho
-Solito en el monte
-Donde el día esconde
-Lumbre de la tierra
-Ceniza de sol.
-Lapacho
+No le enviaré
+Cenizas de rosas
+Ni pienso evitar
+Un roce secreto
 
-Lapacho...
+De aquel amor
+De música ligera
+Nada nos libra
+Nada más queda
+
+De aquel amor
+De música ligera
+Nada nos libra
+Nada más queda
+
+Nada más
+
+Nada más queda
+Nada más queda
+Nada más queda
+Nada más queda
